@@ -42,3 +42,4 @@ Pombis e Manu trabalharam juntos para instalar o filtro na máquina e garantir q
 A partir daquele dia, a máquina de impressão molecular 3D estava protegida contra possíveis acidentes, e todos os habitantes do reino animal puderam receber informações importantes sobre saúde sem se distrair com aromas e sabores irresistíveis.
 
 Pombis aprendeu que, às vezes, é importante pedir ajuda e trabalhar em equipe para resolver problemas difíceis. Com a ajuda de Manu, ele conseguiu cumprir sua missão de entregar informações importantes sobre saúde para todos os habitantes do reino animal.
+
